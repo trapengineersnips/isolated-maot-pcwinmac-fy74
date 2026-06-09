@@ -1,4 +1,4 @@
-# 
+# الأفضل isolated-margin trading bot سير العمل لـ Mac OS | جديد isolated-margin trading bot سير العمل لـ PC Windows. مع اكتشاف هجمات الساندويتش و تصور البيانات — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
